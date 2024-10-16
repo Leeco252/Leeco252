@@ -22,4 +22,5 @@ Leonardo.fatuch@escola.pr.gov.br
 - 📫 
 - 😄 
 - ⚡ 
---> ![](https://media1.tenor.com/m/WZWsCEglGGEAAAAd/coritiba-coxa.gif)
+-->
+![](https://media1.tenor.com/m/WZWsCEglGGEAAAAd/coritiba-coxa.gif)
